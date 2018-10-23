@@ -3,4 +3,4 @@ testing collaboration
 
 Hello Sibel!
 
-Ann, this is my line 6. ::):
+"So it goes" from Slaughter House Five is a favorite of mine.
